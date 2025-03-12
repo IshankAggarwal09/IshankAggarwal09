@@ -4,7 +4,7 @@
 - I’m looking to collaborate on Tech Projects 💕
 - How to reach me 📪
   Email: aggarwalishu263@gmail.com
-  LinkedIn: Ishank Aggarwal
+  LinkedIn: https://www.linkedin.com/in/ishank-aggarwal-69955a297
 - Fun fact: enjoy solving tricky problems and exploring new technologies!⚡
 
 <!---
